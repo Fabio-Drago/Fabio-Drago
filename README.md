@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Fabio-Drago
+- 👀 I’m interested in Codes and Games.
+- 🌱 I’m currently learning: C, Java.
+- 💞️ I’m looking to collaborate on Projects.
+- 📫 How to reach me:
+- fabiotiago092gmail.com
+- discord: FabioTiago12 or fabio_drago
+- ⚡ Fun fact: I'm a good writer.
