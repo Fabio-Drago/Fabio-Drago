@@ -6,6 +6,5 @@
 
 📫 How to reach me:
 - Email: FabioAlmeida092@outlook.com
-- Discord: FabioTiago12 / fabio_drago
 
 ⚡ Fun fact: I enjoy writing and consider it one of my strengths.
