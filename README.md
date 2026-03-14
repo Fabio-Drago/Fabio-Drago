@@ -6,5 +6,6 @@
 
 📫 How to reach me:
 - Email: FabioAlmeida092@outlook.com
+- Or deadpan028@gmail.com
 
 ⚡ Fun fact: I enjoy writing and consider it one of my strengths.
